@@ -26,16 +26,17 @@ Espero que você se inspire a ler também! 😊
   **Comentário:** Acho que o livro traz uma mensagem poderosa sobre a aceitação e como a busca constante por algo "melhor" pode nos impedir de valorizar o que temos agora.
 
 - **Livro:** *A Garota no Gelo*  
-  **Autor:** Robert Bryndza 
+  **Autor:** Robert Bryndza  
   **Gênero:** Mistério  
-  **Avaliação:** ⭐⭐⭐⭐
+  **Avaliação:** ⭐⭐⭐⭐  
   **Comentário:** O livro me manteve interessada, mas houve momentos em que a trama parecia se arrastar um pouco, o que me deixou um pouco irritada. 😂
   
-- **Livro:** *Em um lugar nas estrelas*  
-  **Autor:** Clare Vanderpool
-  **Gênero:** Ficção de aventura
-  **Avaliação:** ⭐⭐⭐⭐
-  **Comentário:** A amizade é um dos pontos forte do livro e isso me cativou.
+- **Livro:** *Em um Lugar nas Estrelas*  
+  **Autor:** Clare Vanderpool  
+  **Gênero:** Ficção de aventura  
+  **Avaliação:** ⭐⭐⭐⭐  
+  **Comentário:** A amizade é um dos pontos fortes do livro e isso me cativou.
+
   
 
 
