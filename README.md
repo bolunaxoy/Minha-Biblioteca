@@ -1,5 +1,6 @@
 # Minha-Biblioteca-Pessoal
-Bem-vindo à minha biblioteca pessoal! Aqui estão todos os livros que já li e minhas impressões sobre cada um deles. 🌟
+Bem-vindo à minha biblioteca pessoal! Aqui estão todos os livros que já li e minhas impressões sobre cada um deles. 🌟 
+( Em Desenvolvimento )
 
 ## Sobre Mim
 Sou apaixonada por livros e adoro explorar histórias de todos os gêneros. Este repositório é meu pequeno cantinho para compartilhar o que já li e o que penso sobre cada livro.
