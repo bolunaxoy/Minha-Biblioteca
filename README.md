@@ -37,11 +37,12 @@ Espero que você se inspire a ler também! 😊
   **Avaliação:** ⭐⭐⭐⭐  
   **Comentário:** A amizade é um dos pontos fortes do livro e isso me cativou.
   
-- **Livro:** *Manual de assassinato para boas garotas*  
-  **Autor:** Holly Jackson 
+- **Livro:** *Manual de Assassinato para Boas Garotas*  
+  **Autor:** Holly Jackson  
   **Gênero:** Mistério  
-  **Avaliação:** ⭐⭐⭐⭐⭐ 
-  **Comentário:** Esse livro tem um lugar especial no meu coração. Se eu pudesse dar uma nota mil, com certeza daria.❤️
+  **Avaliação:** ⭐⭐⭐⭐⭐  
+  **Comentário:** Esse livro tem um lugar especial no meu coração. Se eu pudesse dar uma nota mil, com certeza daria. ❤️
+
 
   
 
