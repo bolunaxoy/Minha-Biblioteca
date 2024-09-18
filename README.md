@@ -29,13 +29,19 @@ Espero que você se inspire a ler também! 😊
   **Autor:** Robert Bryndza  
   **Gênero:** Mistério  
   **Avaliação:** ⭐⭐⭐⭐  
-  **Comentário:** O livro me manteve interessada, mas houve momentos em que a trama parecia se arrastar um pouco, o que me deixou um pouco irritada. 😂
+  **Comentário:** O livro me manteve interessada, mas houve momentos em que a trama parecia se arrastar um pouco, o que me deixou um pouco irritada.😂
   
 - **Livro:** *Em um Lugar nas Estrelas*  
   **Autor:** Clare Vanderpool  
   **Gênero:** Ficção de aventura  
   **Avaliação:** ⭐⭐⭐⭐  
   **Comentário:** A amizade é um dos pontos fortes do livro e isso me cativou.
+  
+- **Livro:** *Manual de assassinato para boas garotas*  
+  **Autor:** Holly Jackson 
+  **Gênero:** Mistério  
+  **Avaliação:** ⭐⭐⭐⭐⭐ 
+  **Comentário:** Esse livro tem um lugar especial no meu coração. Se eu pudesse dar uma nota mil, com certeza daria.❤️
 
   
 
