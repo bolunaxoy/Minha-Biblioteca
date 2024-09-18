@@ -14,14 +14,15 @@ Espero que você se inspire a ler também! 😊
 ## Livros Lidos 📚
 
 - **Livro:** *Garot(a), interrompida*  
-  **Autor:** Susanna Kaysen 
-  **Gênero:** Biografia
-  **Avaliação:** ⭐⭐⭐⭐⭐ 
+  **Autor:** Susanna Kaysen  
+  **Gênero:** Biografia  
+  **Avaliação:** ⭐⭐⭐⭐⭐  
   **Comentário:** Um dos meus favoritos! O modo como ela questiona os rótulos que a sociedade impõe sobre quem está ou não "bem" mentalmente é algo profundo. Acho que o fato de ela ser tão jovem quando enfrenta essas crises só torna tudo mais forte, né?
 
-- **Título:** *A Biblioteca da Meia-Noite*  
+- **Livro:** *A Biblioteca da Meia-Noite*  
   **Autor:** Matt Haig  
-  **Gênero:** Ficção filosófica 
-  **Avaliação:** ⭐⭐⭐⭐⭐
+  **Gênero:** Ficção filosófica  
+  **Avaliação:** ⭐⭐⭐⭐⭐  
   **Comentário:** Acho que o livro traz uma mensagem poderosa sobre a aceitação e como a busca constante por algo "melhor" pode nos impedir de valorizar o que temos agora.
+
 
