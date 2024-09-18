@@ -44,6 +44,12 @@ Espero que você se inspire a ler também! 😊
   **Gênero:** Mistério  
   **Avaliação:** ⭐⭐⭐⭐⭐  
   **Comentário:** Esse livro tem um lugar especial no meu coração. Se eu pudesse dar uma nota mil, com certeza daria. ❤️
+  
+- **Livro:** *Um Caso Perdido*  
+  **Autor:** Colleen Hoover  
+  **Gênero:** Romance  
+  **Avaliação:** ⭐⭐⭐⭐⭐  
+  **Comentário:** É um romance que aborda um tema muito importante e me encantou profundamente. Adorei!
 
 
   
