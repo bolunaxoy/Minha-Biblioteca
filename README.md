@@ -3,6 +3,11 @@ Bem-vindo à minha biblioteca pessoal! Aqui estão todos os livros que já li e 
 
 ( Em Desenvolvimento )
 
+<div style="display: flex; justify-content: center; margin-top: 20px;">
+  <img align="center" height="200" width="200" src="https://github.com/user-attachments/assets/4432d296-6945-4788-84c3-82d70c1210df">
+</div>
+
+
 ## Sobre Mim
 Sou apaixonada por livros e adoro explorar histórias de todos os gêneros. Este repositório é meu pequeno cantinho para compartilhar o que já li e o que penso sobre cada livro.
 
