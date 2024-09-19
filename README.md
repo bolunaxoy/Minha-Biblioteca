@@ -49,7 +49,7 @@ Espero que você se inspire a ler também! 😊
   **Autor:** Colleen Hoover  
   **Gênero:** Romance  
   **Avaliação:** ⭐⭐⭐⭐⭐  
-  **Comentário:** É um romance que aborda um tema muito importante e me encantou profundamente. Adorei!
+  **Comentário:** É um romance que aborda um tema muito importante e me encantou profundamente. Adorei! (obs: é um livro um pouco saliente kk)
 
 
   
